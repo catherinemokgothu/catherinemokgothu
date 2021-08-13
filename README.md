@@ -8,5 +8,7 @@ Road to becoming GitHub Star 🌟 !
 LinkedIn / Twitter / 👐🏾 Volunteer work
 
 💬 Ask me about Mentorship
+
 😄 Pronouns: She/Her
+
 🔗 https://catherinemokgothu.com/
