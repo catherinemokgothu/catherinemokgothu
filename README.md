@@ -10,4 +10,4 @@ LinkedIn / Twitter / 👐🏾 Volunteer work
 
 😄 Pronouns: She/Her
 
-🔗 https://catherinemokgothu.com/
+🔗 https://catherinemokgothu.github.io/
